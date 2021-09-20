@@ -7,3 +7,4 @@ The Lion started crying for help and it was the mighty little rat who came for h
 ----------------------------The End-------------------------------
 
 Moral of the Story
+Never judge a person by its looks
